@@ -1,6 +1,6 @@
-  
+---
 title: Bedingungslose universelle Liebe – Ein Ideal für die Menschheit
-
+---
 Die Idee einer **bedingungslosen, universellen Liebe** ist ein uraltes Konzept, das in zahlreichen philosophischen und religiösen Traditionen auftaucht. Sie beschreibt eine **Liebe, die frei von jeglichen Bedingungen, Erwartungen oder Einschränkungen** ist. Es ist eine Liebe, die **allen Wesen zukommt**, unabhängig von ihren Eigenschaften, Handlungen oder Zugehörigkeiten.
 
 Diese Art von Liebe stellt ein Ideal dar, das die Menschheit seit jeher fasziniert und inspiriert hat. Sie verspricht eine Welt, in der **Mitgefühl, Verständnis und Vergebung** die Grundlage aller zwischenmenschlichen Beziehungen bilden. 
