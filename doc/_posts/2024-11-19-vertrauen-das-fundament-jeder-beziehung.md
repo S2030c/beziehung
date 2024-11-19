@@ -21,4 +21,4 @@ In einer **vertrauensvollen Beziehung** können wir offen über unsere Gefühle,
 
 Es ist ein **kostbares Gut**, das gepflegt und geschützt werden muss. Indem wir ehrlich, **zuverlässig und unterstützend zueinander** sind, können wir das Vertrauen in unseren **Beziehungen stärken** und ein tieferes Gefühl von Verbindung und **Verbundenheit erfahren**.
 
-2024-11-15
+2024-11-15 
